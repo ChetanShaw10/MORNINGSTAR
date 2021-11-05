@@ -1,0 +1,2 @@
+# MORNINGSTAR
+Devil's Diary
